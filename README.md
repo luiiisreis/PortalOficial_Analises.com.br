@@ -1,2 +1,4 @@
-# PortalOficial_Analises.com.br
-LANÇAMENTO (PLATAFORMA NOVA):  LEBRE-SE DE JOGAR COM RESPOSABILIDADE! PROIBIDO PARA MENORES DE🔞.
+# LANÇAMENTOS (PLATAFORMA NOVA)!
+As melhores plataformas validadas com saques rápidos:
+
+Lembre-se de jogar com responsabilidade!.
